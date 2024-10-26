@@ -24,6 +24,3 @@
 
 点击了解详情：https://docs.qq.com/doc/DUG93dVNHbVZjZXpo
 
-欢迎扫码加入 / 体验：
-
-<img width="283" alt="image" src="https://user-images.githubusercontent.com/26037703/156210842-5623cee5-fbc0-4762-9a80-d3f048262089.png">
